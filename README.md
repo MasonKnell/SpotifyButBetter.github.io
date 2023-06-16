@@ -1,1 +1,1 @@
-# SweetJams.github.io
+# SpotifyButBetter.github.io
